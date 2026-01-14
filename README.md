@@ -1,4 +1,4 @@
-# Aimer – 星屑ビーナス
+# Aimer – 星屑ビーナス - Hoshikuzu Venus
 
 > **歌詞登録ステータス：同期歌詞あり**
 
